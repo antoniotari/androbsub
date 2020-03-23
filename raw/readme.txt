@@ -1,1 +1,0 @@
-tracce wav qui
